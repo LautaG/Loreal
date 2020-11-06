@@ -15,9 +15,9 @@ https://LautaG.github.io/Loreal/
 
 ## Autor ✒️
 
-* **Lautaro Galmán** - *Diseñador* - [Perfil Behance](https://www.behance.net/LautaroGalman)
+* **Lautaro Galmán** - *Diseñador y Desarrollador* - [Perfil Behance](https://www.behance.net/LautaroGalman)
 
 ## Muchas Gracias por Confiar 🎁
 
 ---
-⌨️ con ❤️ por [Lautaro Galman](lautigalman@gmail.com) 😊
+⌨️ con ❤️ por [Lautaro Galman](https://www.linkedin.com/in/lautaro-galman/) 😊
